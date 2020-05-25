@@ -1,3 +1,3 @@
-## COMING SOON
+COMING SOON
 
 Very soon
